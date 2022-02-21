@@ -1,1 +1,1 @@
-I love you Peter Bass
+Jesus is lord
